@@ -1,4 +1,4 @@
-#  
+#  anime card clash secret Script offers the most advanced anime card clash Script, with infinite resources and aimbot. Perfect for dominating any match.
 
 
 
